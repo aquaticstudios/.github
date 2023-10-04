@@ -1,1 +1,1 @@
-![AQUATICRENDER](https://github.com/aquaticstudios/.github/assets/85844486/a010a441-ea73-4363-8111-285ed65f1390)
+![AQUATICRENDER](https://github.com/aquaticstudios/.github/assets/85844486/9ed199d0-de9b-4fb8-9f7f-9113cd523473)
