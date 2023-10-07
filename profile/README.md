@@ -1,1 +1,1 @@
-![BANNERDISCORDMKS](https://github.com/aquaticstudios/.github/assets/85844486/3bb4eca9-4ce2-434e-a1a4-b22ae370827b)
+![HEADERAQUATIC](https://github.com/aquaticstudios/.github/assets/85844486/8342d1be-a554-4309-98ad-e3115cfcabac)
