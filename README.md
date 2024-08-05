@@ -1,1 +1,1 @@
-# .github
+[# .github](https://cdn.discordapp.com/attachments/1211426975806259240/1270115153664413808/media-banner-top.png?ex=66b2866a&is=66b134ea&hm=5b4671700b17d4832465011e403bb90e1e24e9048ab3947f6e5cfd349456eadd&)
